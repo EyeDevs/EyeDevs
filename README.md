@@ -1,6 +1,6 @@
 - 👋 Hello I’m Eye 
-- 👀 I’m interested in everything thats free
-- 📫 You can contact me on my discord: Eye#4046
+- 👀 
+- 📫
 
 -
 <!---
